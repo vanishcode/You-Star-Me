@@ -1,3 +1,3 @@
 # You-Star-Me
 
-😆 HoshinoYui stars me just now! (5s delay)
+😆 zhangxh1023 stars me just now! (5s delay)
