@@ -1,3 +1,3 @@
 # You-Star-Me
 
-😆 gaoryrt stars me just now! (5s delay)
+😆 zhengshuai1001 stars me just now! (5s delay)
